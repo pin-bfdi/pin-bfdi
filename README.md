@@ -1,1 +1,1 @@
-<img width="248" height="367" alt="Ekran görüntüsü 2025-10-12 031858" src="https://github.com/user-attachments/assets/90387ec0-f588-45b5-a126-ebf5747a8b24" />
+![SawSybau](https://github.com/user-attachments/assets/d880ca6a-4446-4498-9ad8-f32c64b11b56)
