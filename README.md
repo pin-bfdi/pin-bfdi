@@ -1,11 +1,6 @@
-![awwpinandfanny](https://github.com/user-attachments/assets/c2882faa-eea2-4ec5-8d19-0a5a79503d11)
+https://github.com/user-attachments/assets/e3199d49-3aea-4b76-9475-6839cd24858f
 
-# I'M PIN!! I AM HER AND SHE IS ME !!! /SRS
-
-
-https://github.com/user-attachments/assets/69a4c56d-2842-4bd7-9398-55e705c70966
-
-# here's a video of me being the best (not) for a minute straight
+IT'S MEEE I'M PIN SHE'S ME I AM HER!!!
 
 
 
