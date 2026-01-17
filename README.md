@@ -1,7 +1,6 @@
-https://github.com/user-attachments/assets/e3199d49-3aea-4b76-9475-6839cd24858f
+<img width="747" height="1018" alt="Ekran görüntüsü 2026-01-17 044448" src="https://github.com/user-attachments/assets/a3e9b4ec-d359-4f23-ae67-8cde211ff38d" />
 
-IT'S MEEE I'M PIN SHE'S ME I AM HER!!!
-
+# ^ THE PRETTIEST & GIRLIEST GIRL EVER IN BFDI
 
 
 
