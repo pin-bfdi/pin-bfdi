@@ -1,2 +1,1 @@
-![MEMEMEME](https://github.com/user-attachments/assets/f12d072b-bd0b-4aaa-9aab-b833459ab602)
-# (NOT SCARS, MARKINGS !!!)
+<img width="783" height="615" alt="image" src="https://github.com/user-attachments/assets/2ab8188f-516f-45d9-8a70-adf26f486ac4" />
