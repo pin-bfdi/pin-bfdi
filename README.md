@@ -1,1 +1,2 @@
-<img width="783" height="615" alt="image" src="https://github.com/user-attachments/assets/2ab8188f-516f-45d9-8a70-adf26f486ac4" />
+![pin_eyeroll](https://github.com/user-attachments/assets/eb7b2c0e-781f-480e-a9a8-78aa04b9ad84)
+# MEEEE IT'S ME I'M PIN
