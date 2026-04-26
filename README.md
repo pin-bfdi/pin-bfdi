@@ -1,3 +1,3 @@
-<img width="1216" height="699" alt="image" src="https://github.com/user-attachments/assets/5a2e31e1-2289-44ec-ad02-00922f2c3ccc" />
+https://github.com/user-attachments/assets/c3ea9fe0-042d-4a18-95b1-cef32bd5aa05
 
-# me and the gang yo 😂✌️ together we're BFDI BRANCHES!!!
+# top 10 healthy hetero relationships
