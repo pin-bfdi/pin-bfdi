@@ -1,3 +1,1 @@
-https://github.com/user-attachments/assets/c3ea9fe0-042d-4a18-95b1-cef32bd5aa05
-
-# top 10 healthy hetero relationships
+<img width="313" height="411" alt="gentlepin" src="https://github.com/user-attachments/assets/80b25230-f884-454c-89e7-fed34634a147" />
