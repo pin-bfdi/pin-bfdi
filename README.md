@@ -1,1 +1,1 @@
-<img width="320" height="323" alt="SHE_IS_ME" src="https://github.com/user-attachments/assets/5279c2be-9da5-41a1-9554-3af206999bde" />
+<img width="420" height="389" alt="I_AM_HER" src="https://github.com/user-attachments/assets/d074eee8-f71f-47c0-b6e2-31d799de438b" />
