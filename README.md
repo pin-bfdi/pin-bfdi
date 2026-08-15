@@ -1,1 +1,1 @@
-<img width="309" height="429" alt="gentlepin" src="https://github.com/user-attachments/assets/5ad255b3-5ebc-4ca8-9b59-a8272ce63891" />
+<img width="320" height="323" alt="SHE_IS_ME" src="https://github.com/user-attachments/assets/5279c2be-9da5-41a1-9554-3af206999bde" />
